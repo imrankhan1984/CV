@@ -1,4 +1,4 @@
-# Imran Khan, PhD
+# Imran Khan
 
 Professional profile of Imran Khan, Digital Innovation & Technology Program Manager at Schneider Electric, Grenoble, France.
 
